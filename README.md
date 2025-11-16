@@ -1,1 +1,1 @@
-# viedey.github.io
+# http://videy.aridjaya.com/
